@@ -1,5 +1,5 @@
 
-<a target="_blank" href="https://t.me/nymlinkin/">Join Telegram</a>
+<a target="_blank" href="https://t.me/nymlinkin/">DM for Info</a>
 
 
 # docx TV - IPTV 
