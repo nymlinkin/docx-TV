@@ -3,10 +3,10 @@
 
 
 # docx TV - IPTV 
-IPTV M3U8 FILE, EVERY DAY UPDATES, (FREE IPTV FILE) 100% WORKING
+Alhamdulillah 
 
 
-**# PLEASE SEND STAR**
+
 
 
 
