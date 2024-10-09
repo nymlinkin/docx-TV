@@ -2,7 +2,7 @@
 <a target="_blank" href="https://t.me/nymlinkin/">DM for Info</a>
 
 
-# docx TV - IPTV 
+# docx TV 
 Alhamdulillah 
 
 
